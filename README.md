@@ -6,7 +6,7 @@
 
 <br>
 
-### Currently on week 2 of 1st course 😁
+### Currently on week 3 of 1st course 😁
 
 ## There are 4 Courses in this Specialization:-
 
